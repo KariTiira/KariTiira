@@ -7,5 +7,5 @@
   
 - ❤️ I like animals, enjoy hiking in nature and eating good food (well, who doesn't)
   
-- 📊 previously graduated from the fields of financial services and tourism/hospitality management
+- 🎓 previously graduated from the fields of financial services and tourism/hospitality management
 
